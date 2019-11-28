@@ -1,6 +1,8 @@
 # itn
 in the news
 
+https://www.breitbart.com/politics/2019/10/28/report-conan-revealed-as-name-of-hero-u-s-military-dog-critical-to-isis-raid-that-killed-baghdadi/
+
 https://www.foxnews.com/tech/russian-cows-get-goggles-virtual-reality
 
 https://www.foxnews.com/tech/incredible-dog-rings-doorbell-after-accidentally-getting-locked-out
@@ -9,4 +11,3 @@ https://www.foxnews.com/tech/military-working-dogs-get-innovative-hearing-protec
 
 https://www.bbc.com/news/health-17233426
 
-https://www.nytimes.com/2019/11/25/us/politics/trump-dog-conan.html
