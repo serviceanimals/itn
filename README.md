@@ -2,6 +2,7 @@
 in the news
 
 https://www.breitbart.com/politics/2019/10/28/report-conan-revealed-as-name-of-hero-u-s-military-dog-critical-to-isis-raid-that-killed-baghdadi/
+https://nypost.com/2019/10/28/military-dog-wounded-chasing-al-baghdadi-already-back-on-the-job/
 
 https://www.foxnews.com/tech/russian-cows-get-goggles-virtual-reality
 
