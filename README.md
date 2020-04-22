@@ -13,3 +13,5 @@ https://www.foxnews.com/tech/military-working-dogs-get-innovative-hearing-protec
 
 https://www.bbc.com/news/health-17233426
 
+https://www.foxnews.com/science/dogs-could-sniff-coronavirus-cases-750-per-hour-experts-believe
+
